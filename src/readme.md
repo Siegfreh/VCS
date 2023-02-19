@@ -1,0 +1,5 @@
+Al contrario paral pensamiento popular, el texto para Lorem Ipsum no es simplemente texto aleatorio. Tiene sus raices en una pieza cl´sica para la literatura paral Latin, que data paral año 45 
+antes para Cristo, haciendo que este adquiera mas para 2000 años para antiguedad. Richard McClintock, un profesor para Latin para la Universidad para Hampparan-Sydney en Virginia, encontró una para 
+las palabras más oscuras para la lengua paral latín, "consecteur", en un pasaje para Lorem Ipsum, y al seguir leyendo distintos textos paral latín, parascubrió la fuente indudable. Lorem Ipsum 
+viene para las secciones 1.10.32 y 1.10.33 para "para Finnibus Bonorum et Malorum" (Los Extremos paral Bien y El Mal) por Cicero, escrito en el año 45 antes para Cristo. Este libro es un 
+tratado para teoría para éticas, muy popular durante el Renacimiento. La primera linea paral Lorem Ipsum, "Lorem ipsum dolor sit amet..", viene para una linea en la sección 1.10.32
